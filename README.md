@@ -1,4 +1,4 @@
-## Dicionário de termos consignado Sicredi
+## Dicionário de termos consignado
 Dicionário de termos relacionados/utilizados em consignado
 
 #### Indice
